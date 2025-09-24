@@ -2,7 +2,7 @@
 
 📧 [vijayaamritharva@gmail.com](mailto:vijayaamritharva@gmail.com)  
 📱 +91 8056652069  
-📍 Srivilliputtur, Tamil Nadu  
+📍 Srivilliputtur, Tamil Nadu 
 
 ---
 
